@@ -1,0 +1,1 @@
+Aqui vou abordar alguns assuntos que ainda não encontrei soluões.
